@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+https://www.pexels.com/photo/photo-of-mountain-during-dawn-3224156.png
